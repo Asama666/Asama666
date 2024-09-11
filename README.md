@@ -2,7 +2,7 @@
 -  I’m interested in games and art
 - 🌱 I’m currently learning blender
 - 🖤 I’m looking to collaborate on ...
-- 📫 How to reach me: email, instagram direct messages
+- 📫 How to reach me: instagram direct messages
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: ...
 
