@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Amelia "Asama" Cieszyńska
 -  I’m interested in games and art
-- 🌱 I’m currently learning blender
+- 🌱 I’m currently learning Blender and Ren'Py
 - 🖤 I’m looking to collaborate on ...
 - 📫 How to reach me: instagram direct messages
 - 😄 Pronouns: she/her
